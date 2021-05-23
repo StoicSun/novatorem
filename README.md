@@ -7,7 +7,7 @@
   </td>
   <td width="50%">
 
-<br><p align="center">Bow down before my impeccable musical taste<br><br>
+<br><p align="center">Bow down before my impeccable music taste XD<br><br>
   </p>
   </td>
 </table>
